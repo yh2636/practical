@@ -1,0 +1,7 @@
+gitリポジトリの時間
+リポジトリとread.mdの時間
+Gitかむつかしい
+むつかしいよー
+修正しました
+mouikkai
+aaaaaa

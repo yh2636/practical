@@ -5,3 +5,6 @@ Gitかむつかしい
 修正しました
 mouikkai
 aaaaaa
+bbbbbb
+4
+hjhjhjh
